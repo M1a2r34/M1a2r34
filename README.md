@@ -2,7 +2,8 @@
 - 👀 I’m interested in learning computer programming
 - 🌱 I’m currently learning in KCA UNIVERSITY pursuing Bachelor of Commerce 
 - ✨ I’m an eager aspirant to become an accountant and additional skills of a programmer 
-- 📫 How to reach me VIA WHATSAPP 0706903612 /0717550853 
+- 📫 How to reach me VIA WHATSAPP 0706903612 /0717550853
+- Email :marionamadi3@gmail.com 
 - 😌 I love trying new things and experiences 
 - ⚡ I love God He's my savior 
 
